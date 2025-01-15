@@ -2,7 +2,7 @@
 
 Are you an avid gamer looking for a way to boost your Xbox experience without breaking the bank? Here’s some exciting news for you! You can now get a **$50 US Xbox Gift Card Code completely free** for both **iOS and Android** users. Yes, you read that right! With just a few simple steps, you could have access to $50 worth of Xbox credits to use on games, DLCs, subscriptions, and more. Sounds amazing, right?
 
-### [✅👉CLICK HERE TO GET NOW!](https://shorturl.at/y74CQ)
+### [✅👉CLICK HERE TO GET NOW!](https://justfree.xyz/xbox/go/)
 
 This exclusive offer is available for a limited time, so don’t miss out. Read on to learn how you can easily claim your **free $50 Xbox Gift Card Code**, what you can do with it, and how this offer is perfect for gamers in 2025.
 
